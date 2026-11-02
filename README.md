@@ -1,5 +1,5 @@
 # 💫 About Me:
-i'm currently working in BCITS pvt ltd. in Smart metering project as a project coordinator
+i'm currently working in KIMBAL. in Smart metering project as a project coordinator
 
 
 ## 🌐 Socials:
